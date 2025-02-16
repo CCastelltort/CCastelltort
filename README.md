@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **carlota.castelltort@gmail.com**
 
-- ⚡ Fun fact: **I played 3 years of College Basketball*
+- ⚡ Fun fact: *I played 3 years of College Basketball*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
